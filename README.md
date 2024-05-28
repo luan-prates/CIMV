@@ -16,4 +16,4 @@ O método de estudo consiste em estudo de textos com audio e revisão espaçada 
 
 ### Textos
 
-#### [Jack Hannaford](foundation/01_jack_hannaford.md)
+#### [Jack Hannaford](https://github.com/luan-prates/CIMV/blob/main/foundation/jack_hannaford_01.md)
