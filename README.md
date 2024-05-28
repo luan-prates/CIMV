@@ -12,8 +12,8 @@ O método de estudo consiste em estudo de textos com audio e revisão espaçada 
 4. Adicionar frases no Anki
 5. Ouvir o audio 10x em quanto acompanha lendo
 6. Ouvir o audio novamente 
-7. Ouvir todo o texto do Inicio.
+7. Ouvir todo o texto do Inicio
 
 ### Textos
 
-#### [Jack Hannaford](./foundation/01_jack_hannaford.md)
+#### [Jack Hannaford](foundation/01_jack_hannaford.md)
