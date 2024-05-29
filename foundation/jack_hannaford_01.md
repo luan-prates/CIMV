@@ -161,3 +161,41 @@ o que **naqueles dias** era muito dinheiro.
 
 “**as soon as** I return to Heaven.”
 “**assim que eu** retornar ao céu”.
+
+# Part 06
+
+When the farmer **came back**,
+Quando o fazendeiro **voltou**,
+
+his wife told him **all about how a messenger had come from Heaven**.
+a esposa dele contou para ele **tudo sobre como um mensageiro tinha vindo do céu**.
+
+She said that **the man asked for money for her first husband**,
+Ela disse que **o homem pediu dinheiro para seu primeiro marido**,
+
+**who was living and working in Heaven**, but who was poor.
+**que estava vivendo (morando) e trabalhando no céu**, mas que era pobre.
+
+“You are a foolish woman!” **shouted the farmer**.
+“Você é uma mulher tola!”, **gritou o fazendeiro**.
+
+“**How could you believe** such a silly story?”
+“**Como você pôde acreditar** em uma história tão boba?”
+
+“**Well, you are even more foolish,**” said the woman,
+“**Bom, você é ainda mais tolo**”, disse a mulher.
+
+“because **you showed me where the money was hidden**.”
+“porque **você me mostrou onde o dinheiro estava escondido**.”
+
+**The husband did not agree** with what she said,
+**O marido não concordou** com o que ela disse,
+
+but **he did not stay to argue**.
+mas **ele não ficou para discutir**.
+
+**He hurried off on his horse** to try to find the old soldier
+**Ele partiu às pressas em seu cavalo** para tentar encontrar o velho soldado
+
+before **he got too far away**.
+antes **que ele chegasse/ficasse muito longe**.
