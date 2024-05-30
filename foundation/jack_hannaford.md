@@ -162,7 +162,7 @@ o que **naqueles dias** era muito dinheiro.
 “**as soon as** I return to Heaven.”
 “**assim que eu** retornar ao céu”.
 
-# Part 06
+## Part 06
 
 When the farmer **came back**,
 Quando o fazendeiro **voltou**,
@@ -199,3 +199,50 @@ mas **ele não ficou para discutir**.
 
 before **he got too far away**.
 antes **que ele chegasse/ficasse muito longe**.
+
+## Part 07
+
+**Jack Hannaford heard the sound of the horse** behind him.
+**Jack Hannaford ouviu o som do cavalo** atrás dele.
+
+He knew that **the farmer was coming for him and for the money**.
+Ele sabia que **o fazendeiro estava vindo atrás dele e do dinheiro**.
+
+Quickly, **he came up with a plan**.
+Rapidamente, **ele inventou (“bolou”) um plano**.
+
+**He knelt** by the side of the road,
+**Ele ajoelhou-se** ao lado da estrada,
+
+**covered his eyes** with one hand,
+**cobriu seus olhos** com uma mão,
+
+and **pointed up to the sky** with the other.
+e **apontou para o céu** com a outra.
+
+**The farmer soon reached him** and asked:
+**O fazendeiro logo o alcançou** e perguntou:
+
+“**What are you doing here** by the side of the road?”
+“**O que você está fazendo aqui** ao lado da estrada?”
+
+“Why are you **protecting your eyes**”
+“Por que você está **protegendo os seus olhos**”
+
+“and **pointing up to the sky?**”
+“e **apontando para o céu?**”
+
+“**It is amazing! It is God’s work!**” shouted the man.
+“**É incrível! É uma obra de Deus!**”, gritou o homem.
+
+“I see **a wonderful thing!**”
+“Eu vejo **uma coisa maravilhosa!**”
+
+“**What kind of wonderful thing?**” asked the farmer.
+“**Que tipo de coisa maravilhosa?**”, perguntou o fazendeiro.
+
+“**A man is walking straight up to Heaven** on a rainbow,”
+“**Um homem está andando diretamente para o céu** em um arco-íris”,
+
+“**just as if it were** a road.”
+“**exatamente como se fosse** uma estrada.”
