@@ -214,7 +214,7 @@ Rapidamente, **ele inventou (“bolou”) um plano**.
 **He knelt** by the side of the road,
 **Ele ajoelhou-se** ao lado da estrada,
 
-**covered his eyes** with one hand,
+**covered his eyes** with one hand,a
 **cobriu seus olhos** com uma mão,
 
 and **pointed up to the sky** with the other.
@@ -246,3 +246,38 @@ e **apontou para o céu** com a outra.
 
 “**just as if it were** a road.”
 “**exatamente como se fosse** uma estrada.”
+
+Part 08
+
+The farmer **looked at the sky**,
+O fazendeiro **olhou para o céu**,
+
+but **he could not see** the amazing rainbow
+mas **ele não conseguiu ver** o incrível arco-íris
+
+or **the man walking on it**.
+ou **o homem andando sobre ele**.
+
+“Here,” **said the soldier**,
+“Aqui,”, **disse o soldado**,
+
+“**kneel down** by the side of the road”
+“**ajoelhe-se** ao lado da estrada”
+
+“and look up at the sky **like I’m doing**.”
+“e olhe para o céu **como eu estou fazendo**.”
+
+“**I will if you’ll hold my horse**,” said the farmer,
+“**Eu vou se você segurar meu cavalo**”, disse o fazendeiro,
+
+and **he jumped down from his horse**.
+e **ele pulou do seu cavalo**.
+
+**As soon as** the farmer knelt down,
+**Logo que** o fazendeiro ajoelhou-se,
+
+**Jack Hannaford jumped onto the horse** and escaped!
+**Jack Hannaford pulou no cavalo** e escapou!
+
+Now, **who do you think was more foolish**, the farmer or his wife?
+Agora, **quem você acha que foi mais tolo**, o fazendeiro ou sua esposa?
