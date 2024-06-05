@@ -15,3 +15,10 @@ give my daughter as his wife; and I will make him my heir, and he shall be king
 after me.” But this challenge wasn’t quite what it seemed. The King added a
 strict condition. “If any man tries to tell such a story and fails, then his head
 will be cut off.”
+
+The King's daughter was very beautiful, and many young men in The
+Kingdom were willing to do anything to win her. But none of them wanted to
+lose his head, and so only a few tried for the prize. One young man invented
+a story that lasted three months; but after that, he could think of nothing
+more. His fate was a warning to others, and it was a long time before another
+storyteller was daring enough to take the King's challenge.
