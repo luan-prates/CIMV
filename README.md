@@ -16,4 +16,6 @@ O método de estudo consiste em estudo de textos com audio e revisão espaçada 
 
 ### Textos
 
-#### [Jack Hannaford](https://github.com/luan-prates/CIMV/blob/main/foundation/jack_hannaford_01.md)
+#### [Jack Hannaford](https://github.com/luan-prates/CIMV/blob/main/foundation/jack_hannaford.md)
+
+#### [The endless tale](https://github.com/luan-prates/CIMV/blob/main/foundation/the_endless_tale.md)
