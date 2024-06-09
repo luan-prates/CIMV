@@ -29,3 +29,12 @@ end?” “It is true,” said The King. “And will this man have your daughter
 wife, and will he be your heir?” “Yes, if he succeeds,” said The King, “but if he
 fails, he will lose his head.” “Very well, then,” said the Stranger. “I have a
 pleasant story about locusts.” “Tell it,” said The King. “I will listen to you.”
+
+The storyteller began his story. “Once upon a time a certain king seized all
+the corn in his country, and stored it in a strong granary, but a swarm
+of locusts came over the land and saw where the grain was stored.
+After searching for many days, the locusts found a small crack on the east
+side of the granary, but the opening was just large enough for one locust
+at a time to pass through. So, one locust went in and carried away a
+grain of corn; then another locust went in and carried away a grain of corn;
+then another locust went in and carried away a grain of corn.”
