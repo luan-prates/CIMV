@@ -38,3 +38,10 @@ side of the granary, but the opening was just large enough for one locust
 at a time to pass through. So, one locust went in and carried away a
 grain of corn; then another locust went in and carried away a grain of corn;
 then another locust went in and carried away a grain of corn.”
+
+Day after day, week after week, the Stranger kept on saying, “Then another
+locust went in and carried away a grain of corn.” A month passed. A year
+passed. After two years, The King asked, “How much longer will the locusts
+be going in and carrying away corn?” “Oh, King!" said the Stranger, “the
+locusts have only cleared a few inches, and there are thousands of inches in
+the granary."
