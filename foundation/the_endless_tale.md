@@ -45,3 +45,10 @@ passed. After two years, The King asked, “How much longer will the locusts
 be going in and carrying away corn?” “Oh, King!" said the Stranger, “the
 locusts have only cleared a few inches, and there are thousands of inches in
 the granary."
+
+“Man, man!" cried The King, “You will drive me mad. I can listen to it no
+longer. Take my daughter, be my heir, and rule my Kingdom, but do not let
+me hear another word about those incessant locusts!" So, the Stranger
+married The King's daughter and lived happily in the land for many years;
+however, his father-in-law, The King, did not care to listen to any more
+stories.
