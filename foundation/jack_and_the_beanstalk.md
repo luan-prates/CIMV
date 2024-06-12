@@ -16,3 +16,11 @@ reached a kingdom in the sky. There lived a giant and his wife. Jack went
 inside the house and found the giant’s wife in the kitchen. Jack said, "Could
 you please give me something to eat? I am so hungry!" The kind wife gave him
 bread and some milk. While he was eating, the giant came home.
+
+The giant was very big and looked very fearsome. Jack was terrified and went
+and hid inside. The giant cried, “Fee-fi-fo-fum, I smell the blood of a boy. Dead
+or alive, I’ll grind his bones to make my bread!”, but the wife said, “There is no
+boy in here!” So, the giant ate his food and then went to his room. He took
+out his sacks of gold coins, counted them and kept them aside. Then he went
+to sleep. In the night, Jack crept out of his hiding place, took one sack of gold
+coins and climbed down the beanstalk.
