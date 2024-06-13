@@ -24,3 +24,12 @@ boy in here!” So, the giant ate his food and then went to his room. He took
 out his sacks of gold coins, counted them and kept them aside. Then he went
 to sleep. In the night, Jack crept out of his hiding place, took one sack of gold
 coins and climbed down the beanstalk.
+
+At home, he gave the coins to his mother. His mother was very happy and
+they lived well for sometime. A few days later, Jack once again climbed the
+beanstalk and went to the giant’s house. Jack asked the giant’s wife for food,
+but while he was eating the giant returned. Jack then hid under the bed. The
+giant cried, "Fee-fi-fo-fum, I smell the blood of a boy. Dead or alive, I’ll grind
+his bones to make my bread!" The wife again said, "There is no boy in here!"
+The giant ate his food and went to his room. There, he took out a hen. He
+shouted, "Lay!" and the hen laid a golden egg.
