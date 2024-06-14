@@ -33,3 +33,12 @@ giant cried, "Fee-fi-fo-fum, I smell the blood of a boy. Dead or alive, I’ll g
 his bones to make my bread!" The wife again said, "There is no boy in here!"
 The giant ate his food and went to his room. There, he took out a hen. He
 shouted, "Lay!" and the hen laid a golden egg.
+
+When the giant fell asleep, Jack took the hen and climbed down the
+beanstalk. Jack’s mother was very happy with him. After some days, Jack
+once again climbed the beanstalk and went to the giant’s castle. For the third
+time, Jack met the giant’s wife and asked for some food. Once again, the
+giant’s wife gave him bread and milk. But while Jack was eating, the
+giant came home. "Fee-fi-fo-fum, I smell the blood of a boy. Dead or
+alive, I’ll grind his bones to make my bread!" cried the giant. "Don’t be silly!
+There is no boy in here!" said his wife.
