@@ -42,3 +42,12 @@ giant’s wife gave him bread and milk. But while Jack was eating, the
 giant came home. "Fee-fi-fo-fum, I smell the blood of a boy. Dead or
 alive, I’ll grind his bones to make my bread!" cried the giant. "Don’t be silly!
 There is no boy in here!" said his wife.
+
+The giant had a magical harp that could play beautiful songs. While the giant
+slept, Jack took the harp and was about to leave. Suddenly, the magic harp
+cried, "Help master! A boy is stealing me!" The giant woke up and saw Jack
+with the harp. Furious, he ran after Jack. But Jack was too fast for him. He ran
+down the beanstalk and reached home. The giant followed him down. Jack
+quickly ran inside his house and fetched an axe. He began to chop the
+beanstalk. The giant fell and died. Jack and his mother were now very rich
+and they lived happily ever after.
