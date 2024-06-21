@@ -19,3 +19,10 @@ took them to the roof of the tower, and placed the feathers into four lines.
 He organized the feathers from shortest to longest until the feathers formed
 gentle half-moon shapes. Then, Daedalus stuck the feathers together with
 string in the middle and wax at the base.
+
+While Daedalus worked, Icarus played with the wax, making it flat between
+his fingers, and he chased feathers that floated on the wind. Daedalus
+showed Icarus how he had made the feathers into two pair of wings. He put
+the larger pair onto his arms, and began to quickly move them up and down
+until his feet took off from the floor, and he seemed to stand in the sky. Icarus
+laughed and could not wait to try out the smaller pair of wings.
