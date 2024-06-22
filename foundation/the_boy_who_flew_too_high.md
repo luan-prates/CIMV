@@ -26,3 +26,10 @@ showed Icarus how he had made the feathers into two pair of wings. He put
 the larger pair onto his arms, and began to quickly move them up and down
 until his feet took off from the floor, and he seemed to stand in the sky. Icarus
 laughed and could not wait to try out the smaller pair of wings.
+
+Over the next few days, father and son both exercised the wings until little
+Icarus was almost as good at flying as his father. Then one morning Daedalus
+said: now son, we are ready to leave this island for good. We shall fly home to
+Athens. Flying is beautiful, but it can be very dangerous. Listen to my
+instructions and be sure to obey them perfectly. At all times, follow me. Do
+not take a different flight path, or you will soon be lost.
