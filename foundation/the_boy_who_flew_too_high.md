@@ -33,3 +33,11 @@ said: now son, we are ready to leave this island for good. We shall fly home to
 Athens. Flying is beautiful, but it can be very dangerous. Listen to my
 instructions and be sure to obey them perfectly. At all times, follow me. Do
 not take a different flight path, or you will soon be lost.
+
+Do not fly too low or your wings will get wet from the waves, become too
+heavy, and drown you. Nor should you fly too high, or the sun will melt the
+wax, and your wings will fall apart. Have you understood all that I have said?
+Little Icarus nodded his understanding. Then Daedalus took his son to the
+highest walls of the tower and jumped into the sky, flapping his wings. Icarus
+followed soon after. If a fisherman had looked up just then, he would have
+thought that he saw two Ancient Spirits with the arms of birds.
