@@ -34,10 +34,18 @@ Athens. Flying is beautiful, but it can be very dangerous. Listen to my
 instructions and be sure to obey them perfectly. At all times, follow me. Do
 not take a different flight path, or you will soon be lost.
 
-Do not fly too low or your wings will get wet from the waves, become too
+Do not fly too olw or your wings will get wet from the waves, become too
 heavy, and drown you. Nor should you fly too high, or the sun will melt the
 wax, and your wings will fall apart. Have you understood all that I have said?
 Little Icarus nodded his understanding. Then Daedalus took his son to the
 highest walls of the tower and jumped into the sky, flapping his wings. Icarus
 followed soon after. If a fisherman had looked up just then, he would have
 thought that he saw two Ancient Spirits with the arms of birds.
+
+Over the seas, they moved through the sky, and at first Icarus felt afraid, for
+he had never gone very far in his practice flights, but soon he found that flying
+was the most fun you could ever have. He began to follow the sea birds,
+dancing up and down above the ocean. His father turned around and called,
+"Icarus, take care!", and for a while Icarus flew carefully, like his father. But
+then his wings caught a warm air current, and he found that he could move
+easily above and beyond with little effort. This was the life!
