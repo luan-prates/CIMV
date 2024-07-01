@@ -49,3 +49,12 @@ dancing up and down above the ocean. His father turned around and called,
 "Icarus, take care!", and for a while Icarus flew carefully, like his father. But
 then his wings caught a warm air current, and he found that he could move
 easily above and beyond with little effort. This was the life!
+
+He was flying so high that the ships down below looked like tiny insects. His
+father called up to him, "Icarus, remember what I told you. Come down right
+now!" Icarus could not hear him, however, and his father could not reach him.
+Icarus was far too close to the sun, and soon the wax that held the feathers
+together began to melt. Gradually his wings began to lose their shape, and
+some of the feathers even fell off. Icarus quickly moved his arms with worry
+and frenzy, but it was too late. He had lost the power of flight, and down he
+fell with force into the sea.
